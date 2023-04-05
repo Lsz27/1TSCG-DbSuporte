@@ -1,1 +1,0 @@
-# 1TSCG-DbSuporte
